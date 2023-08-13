@@ -7,5 +7,3 @@ Link for his video:
 I don't plan on watching the whole 4-hour video, but I will come back to the video(and possibly other youtube videos) while building independent projects
 when I need help.
 
-
-I also plan to build independent projects after completing his youtube course. 
